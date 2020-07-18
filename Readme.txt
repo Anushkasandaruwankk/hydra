@@ -39,11 +39,5 @@ vnfjdehjvf
 dfvdvndkjv
 fvfv
 
-dvfdhvdvf
-dfvdvkjndv
-dfvdvndkjv
-dfvdvkjndv
-dfvdvjnkdvsf
-
 
 
